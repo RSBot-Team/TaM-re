@@ -1,5 +1,0 @@
-# TaM-re
-
-ODQ3ODU0NjkzOTkyMTA0MDA3.YLEINw.HkMqjAlwk4TT4aG6xc4F7wsA5yI
-
-:)
